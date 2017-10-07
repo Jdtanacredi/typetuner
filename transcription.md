@@ -1,4 +1,4 @@
-Thank you very much I appreciate that. Quick warning before we get in, there is audio attached this, because you can’t really talk about musical scales without playing a few. I’m hoping it’s not too loud, they’ll find tune that from the back as soon as it comes up.
+Thank you very much I appreciate that. Quick warning before we get in, there is audio attached to this, because you can’t really talk about musical scales without playing a few. I’m hoping it’s not too loud, they’ll find tune that from the back as soon as it comes up.
 
 (00:22)The slides do swivel, and there is one gif that if you do have problems with perspective or depth or motion I’ll warn you in advance, now is the time to look away. Were going to be talking about using musical scales to build harmonious and responsive typography.
 
